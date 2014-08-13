@@ -1,2 +1,1 @@
-JK don't read me.
-Still on dat tutorial grind.
+You thought this was a readme, but it was me, DIO!
